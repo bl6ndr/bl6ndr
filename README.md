@@ -1,3 +1,4 @@
+https://discord.com/api/webhooks/1299129045908197386/Y8qNfzqsAQ2V4jpDXHVJBFjc2Yv6Pb_EoheK0gXCfJizdxi9c309hM20PvFPPiv4MWr2
 # 💫 About me:
 Hi, my name is bl6ndr, I don't remember myself 5 years ago, so don't ask me anything about 5 years ago, please.
 
