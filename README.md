@@ -1,5 +1,5 @@
 # 💫 About me:
-Hi, my name is bl6ndr, I don't remember myself 5 years ago, so don't ask me anything about 5 years ago, please.
+I love to rape websites
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/itsme_.khalid) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@bl6ndr)
